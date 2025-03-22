@@ -2,3 +2,4 @@ I guess if they work in usa and 23-24 age they will have linkedin you can see th
 after that if you are unable to get the data  "https://www.youtube.com/watch?v=KdZvxxLsN3E" see this video and try if you are not getting ask me i will get his data for you
 dont say you dont know his name also, you use google lens also and get since you have his photo
 Then I will see if you really tried
+"Click on view raw to download video to see the video after opening video"
